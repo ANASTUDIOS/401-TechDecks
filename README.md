@@ -1,1 +1,1 @@
-Website about selling Techdecks and creating boards
+Website about selling Techdecks, creating boards, and having fun
